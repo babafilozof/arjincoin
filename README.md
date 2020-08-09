@@ -1,4 +1,5 @@
 # arjincoin
 ben başlatım sen 
-devmını 
+devamını
 getir
+bebeğim
